@@ -1,1 +1,1 @@
-# Tracing-the-growth-of-the-global-community-A-population-forecastin-analysis
+# Tracing-the-growth-of-the-global-community-A-population-forecasting-analysis
